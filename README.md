@@ -2,7 +2,7 @@
 
 https://hackmipt.com/  25-26 апреля 
 
-## Team Zvezdochka
+## Zvezdochka
 
 Трек Ситимобил - Третье место 
 
